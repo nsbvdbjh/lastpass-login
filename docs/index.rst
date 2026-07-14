@@ -1,4 +1,4 @@
-LastPass Login: A Complete Guide to Accessing Your Account Securely
+LastPass Login: Complete Guide to Securely Access Your Password Vault?
 ===================================================================
 
 
